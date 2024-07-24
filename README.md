@@ -1,1 +1,2 @@
 # General-
+am being unfairly accused of phishing by Julius Santana. He has no proof and no documents to substantiate his claims. This is a clear attempt to censor me and destroy my business. Julius Santana is abusing his power and spreading lies. I will not let this go unnoticed. I will expose all his falsehoods so that everyone knows who he really is. For those who want to know more about him, Julius Santana is a lawyer with OABSP 308.238. He is using his position to censor and harm others without justification. He hides behind Apura, but his real website is julius.adv.br.
